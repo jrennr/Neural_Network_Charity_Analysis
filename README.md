@@ -1,1 +1,1 @@
-Tutor: Amy Ying Lin
+Amy Ying Lin (tutor)
